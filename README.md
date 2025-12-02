@@ -2,7 +2,7 @@
 Articles &amp; fashion content by ModernFashion.in
 # Evolution of Indian Saree Styles: From Traditional Weaves to Modern Drapes
 
-The [Indian saree](uhttps://modernfashion.in/rl) is one of the most iconic and timeless pieces of clothing, symbolizing elegance, heritage, and cultural identity. Over thousands of years, the saree has evolved from simple handwoven drapes to stylish, modern silhouettes that reflect both tradition and innovation. This article explores the fascinating journey of Indian sarees — from ancient weaves to today’s contemporary draping styles.
+The [Indian saree] is one of the most iconic and timeless pieces of clothing, symbolizing elegance, heritage, and cultural identity. Over thousands of years, the saree has evolved from simple handwoven drapes to stylish, modern silhouettes that reflect both tradition and innovation. This article explores the fascinating journey of Indian sarees — from ancient weaves to today’s contemporary draping styles.
 
 ##  Ancient Origins of the Saree
 The saree traces its roots back to the Indus Valley Civilization (2800–1800 BCE). Women wore long, unstitched pieces of cotton fabric wrapped elegantly around the body. These early drapes emphasized:
@@ -15,7 +15,7 @@ Handloom weaving grew rapidly as different regions developed their own signature
 ##  Evolution of Regional Saree Weaves
 Every region in India created its unique saree identity:
 
-### • Banarasi Saree (Uttar Pradesh)
+### • [Banarasi Saree](https://modernfashion.in/) (Uttar Pradesh)
 Famous for luxurious silk, golden zari work, and Mughal-inspired designs.
 
 ### • Kanjeevaram Saree (Tamil Nadu)
@@ -63,7 +63,7 @@ Despite changes in fashion, the saree continues to stay popular because:
 - It is used in weddings, festivals, and daily wear  
 - Designers keep reinventing it  
 
-## 🔗 Read More on ModernFashion
+##  Read More on ModernFashion
 For more Indian fashion insights and historical articles, visit:
 
  **[ModernFashion.in](https://modernfashion.in/)**  
